@@ -1,1 +1,0 @@
-# givingjar-media
